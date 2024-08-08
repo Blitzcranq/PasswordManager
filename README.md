@@ -1,6 +1,5 @@
 # Password Manager Screenshots:
 
-# Password Manager Screenshots:
 
 ![WhatsApp Image 2024-05-10 at 10.58.54 (1)](WhatsApp%20Image%202024-05-10%20at%2010.58.54%20(1).jpeg)
 ![WhatsApp Image 2024-05-10 at 10.58.58](WhatsApp%20Image%202024-05-10%20at%2010.58.58.jpeg)
